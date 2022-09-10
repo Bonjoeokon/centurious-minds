@@ -1,1 +1,0 @@
-# centurious-minds
